@@ -54,3 +54,4 @@ Enhance your endless running experience with additional content and gameplay imp
 
 ## 🔍 Popular Keywords
 
+Temple Run 2 Download Apk, Temple Run Mod Apk, temple run mod apk 2, download temple run 2 mod apk, temple run 2 apk download, temple run 2 download, temple run 2 unlimited money, temple run 2 mod apk unlimited money, temple run unlimited money, temple run 2 unlimited money, temple run mod download, temple run apk download, temple run mod apk download, temple run apk mod download
